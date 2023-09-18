@@ -1,4 +1,4 @@
-# belajar-semua-dari-dasar
+#menulis list yang baru kepikiran
 
 #lulus kuliah dengan cepat
 #memperbanyak teman
